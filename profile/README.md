@@ -1,1 +1,1 @@
-# Makkah Taxi Hub — Private, fixed-fare taxi transfers for Umrah & Hajj pilgrims: Jeddah Airport to Makkah, Makkah to Madinah, Ziyarat tours and Taif trips. Operating 24/7 since 2015, rated 4.9 from 333 Google reviews. Website: https://makkahtaxihub.com · WhatsApp: +966 54 836 9405
+# Makkah Taxi Hub — Private, fixed-fare taxi transfers for Umrah & Hajj pilgrims: Jeddah Airport to Makkah, Makkah to Madinah, Ziyarat tours and Taif trips. Operating 24/7 since 2015, rated 4.9 from 350+ Google reviews. Website: https://makkahtaxihub.com · WhatsApp: +966 54 836 9405
